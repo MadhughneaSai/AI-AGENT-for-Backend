@@ -105,7 +105,4 @@ https://youtu.be/P32ASsNMB4k?si=aNvr8jFBWz38N-ox
 
 ---
 
-## Author
-**Niveditha​ ,Aishwarya​ , Harsha​ ,Koushik **
-
 For any queries or contributions, feel free to reach out!
